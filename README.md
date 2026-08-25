@@ -2,7 +2,6 @@
 
 [![336-sin-titulo-20260814205748.png](https://i.postimg.cc/L4v3JfSg/336-sin-titulo-20260814205748.png)](https://postimg.cc/F1dLqY7h)
 
-${\textsf{\color{#FFF3F7}𝐌y mafi αnd 𝐼}}$
 
 [![335-sin-titulo-20260814205402.png](https://i.postimg.cc/mkTj0ysw/335-sin-titulo-20260814205402.png)](https://postimg.cc/ZBD6N30B)
 
