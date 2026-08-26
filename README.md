@@ -2,7 +2,7 @@
 
 [![Tumblr-l-551917651532512.gif](https://i.postimg.cc/8zxLFDYJ/Tumblr-l-551917651532512.gif)](https://postimg.cc/FYgY8tNN)
 
-${\textsf{\color{#FFCD9C}𝐳amㅤ𖹭'𝐬ㅤ𝑒ll𝐢e}}$
+${\textsf{\color{#FFCD9C}𝐳amㅤ𖹭'𝐬ㅤ𝑒ll𝐢ot}}$
 
 ㅤ
 
