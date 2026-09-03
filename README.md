@@ -1,17 +1,6 @@
 <div align="center">
 
-[![Tumblr-l-551917651532512.gif](https://i.postimg.cc/8zxLFDYJ/Tumblr-l-551917651532512.gif)](https://postimg.cc/FYgY8tNN)
-
-${\textsf{\color{#FFCD9C}𝐳amㅤ𖹭'𝐬ㅤ𝑒ll𝐢ot}}$
-
-ㅤ
-
-[![z9kcar.webp](https://i.postimg.cc/hGTgnbxR/z9kcar.webp)](https://postimg.cc/5H4Dqzns)
-
-
-[![359-sin-titulo-20260825194906.png](https://i.postimg.cc/DyP2JcY0/359-sin-titulo-20260825194906.png)](https://postimg.cc/jLCVByTY)
-
-[![362-sin-titulo-20260825201741.png](https://i.postimg.cc/Kzp0sCzv/362-sin-titulo-20260825201741.png)](https://postimg.cc/qhncNby9)
+wip
 
 ㅤ
 
